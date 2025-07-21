@@ -1,6 +1,6 @@
 ## Web Sitesine Aşağıdaki Linkten Erişebilirsiniz
 
-📌 https://canbozv5.github.io/Tribute-Website📌
+📌 https://canbozv5.github.io/Tribute-Website 📌
 
 ## Web Sitesinin Ufak Bir Önizlemesi
 
